@@ -1,1 +1,1 @@
-Suce ma bite
+J'suis kazen j'fuck les nègre
